@@ -1,12 +1,11 @@
-# Rokda7Gem
+IJ7 Geme
 
-Welcome to Rokda7Gem.
+Welcome to IJ7 Geme.
 
-Visit the official website:
-https://rokda7gem.co.in/
+Official website: https://ij7geme.com/
 
-Rokda7Gem is an online gaming and entertainment website.
+Visit our website to learn more about IJ7 Geme.
 
-## Website
+Website
 
-🌐 https://rokda7gem.co.in/
+https://ij7geme.com/
